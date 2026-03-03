@@ -1,5 +1,7 @@
 Translated in English, Japanese, Chinese & Korean
+
 Assassin Beats Manga Dialogue | アサシンビーツマンガセリフ | 刺客擊敗漫畫對話 | 어쌔신 비츠 만화 대화 
+
 by James Hawkins | ジェームズ・ホーキンス著 | 作者：詹姆斯霍金斯 | 제임스 호킨스 지음 
 Chapter 1 
 Name | 名前 | 姓名 | 이름: 
